@@ -5,3 +5,5 @@ Selamat datang di website resmi informasi program haji umroh.kami siap membantu 
 * **Paket umroh reguler**:Perjalanan ibadah amanah dengan akomodasi hotel bintang dekat masjidil Haram.
 * **Paket umrah plus **:Perjalanan ibadah sekaligus ziarah ke destinasi bersejarah islam.
 * **Fasilitas termasuk **:Tiket pesawat pp, visa umrah,manasik,pemandu(muthawwif) berpengalaman,air zamzam.
+* ###📲 pendaftaran & konsultasi:
+* [👉 Klik di sini untuk chat via WhtsApp](https://6285703599630)
